@@ -2,7 +2,7 @@
 - 👀 I’m interested in Making a website.
 - 🌱 I’m currently learning HTML.
 - 💞️ I’m looking to collaborate on better learning.
-- 📫 Dm me at johnmartinsayson343@gmail.com
+- 📫 You can dm me at johnmartinsayson343@gmail.com for collabs.
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i like peace and quiet.
 
